@@ -1,0 +1,1 @@
+# Proje-Ve-G-rev-Y-netim-Platformu
